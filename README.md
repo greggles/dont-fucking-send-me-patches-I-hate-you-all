@@ -1,5 +1,5 @@
 I <3 the internet.
-=======================================
+==================
 
 This is an anti-social experiment. I don't care about working with established community norms. 
 
